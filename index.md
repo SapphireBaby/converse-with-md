@@ -1,4 +1,4 @@
 # Valarie
 ## Sapphire
 ### Breaux
-[Link In Bio](https://www.canva.com/design/DAF1m71bHAY/view)
+[Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
